@@ -1,1 +1,0 @@
-# russia_losses_equipment
